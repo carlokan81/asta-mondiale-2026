@@ -1,0 +1,1 @@
+# asta-mondiale-2026
